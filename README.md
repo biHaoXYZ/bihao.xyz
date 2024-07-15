@@ -4,6 +4,17 @@
 
 ## 网站 https://bihao.xyz
 
-## 服务
+### 服务列表
 
-### 账号 ： telegram直登号
+### 账号 ： 出售telegram直登号(TDATA)、telegram协议号(json+session)、APPLE ID账号、Gmail账号、Tiktok账号、OpenAI账号、Google Voice账号、facebook账号、instagram账号、Telegram飞机老频道老群组
+
+### 链上空投：支持base、arb、bsc、eth、op等各链批量发送 网站电报同名链接的 代币
+
+### 测试币： 出售 bnb、eth-goerli、eth-sepolia等各种测试币
+
+### 刷粉刷流量： 提供telegram、Twitter、discord、tiktok、微博、facebook、youtube、instagram各类账号刷粉丝服务
+
+### 波场靓号： 出售6A、7A、8A、9A、10A各类波场靓号
+
+## 电报频道 [@biHaoXYZ](https://t.me/biHaoXYZ)    
+
